@@ -1,7 +1,7 @@
 # Current Role
 **Visiting Assistant Professor of Computer Science**  
 Department of Computer Science, Whitman College, Walla Walla, WA 99362  
-📞 509-360-9008 | ✉️ [pitigals@whitman.edu](mailto:pitigals@whitman.edu) | 🔗 [LinkedIn](https://www.linkedin.com/in/sachinthapitigala/)
+✉️ pitigals at whitman dot edu | 🔗 [LinkedIn](https://www.linkedin.com/in/sachinthapitigala/)
 
 ---
 
